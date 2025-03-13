@@ -1,3 +1,3 @@
 # Batatinha Espacial
 
-https://antoniobreno.carrd.co/
+https://antonio-breno.carrd.co/
